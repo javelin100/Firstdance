@@ -1,0 +1,1 @@
+diaond is beautiful
